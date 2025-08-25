@@ -2,7 +2,7 @@
 <!--32424
 **Mar13ia123A88334/MariaA88334** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you cGVhb2lndmw=dWFqd210bG4=dml5cWZ4dHc=bWVrZHdxYng=d3hwZWdmaXM=started:
+Here are some ideas to get you aWp1c3ZtbnQ=cGVhb2lndmw=dWFqd210bG4=dml5cWZ4dHc=bWVrZHdxYng=d3hwZWdmaXM=started:
 dmVzYWlnb3U=aWplZ3NicHU=
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
